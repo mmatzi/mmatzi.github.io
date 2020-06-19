@@ -12,3 +12,5 @@ Mit seiner Bassbariton-Stimme gilt Crosby als einer der erfolgreichsten US-Säng
 
 >Wenn man im Himmel nicht rauchen darf,
 >geh ich dort nicht hin.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Bing_Crosby_06-1942.jpg/330px-Bing_Crosby_06-1942.jpg"/>
