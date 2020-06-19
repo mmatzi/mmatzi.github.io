@@ -9,3 +9,6 @@ Mit seiner Bassbariton-Stimme gilt Crosby als einer der erfolgreichsten US-Säng
 * Prince
 * Canadian
 * Bulldog
+
+>Wenn man im Himmel nicht rauchen darf,
+>geh ich dort nicht hin.
